@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ...you are my girl
-- ⚡ Fun fact: ... coolcuicuijingfei is my wife,my life, my lovejingfei
+- ⚡ Fun fact: ... coolcuicuijingfei is my wifeyounigaiduohao,my life, my lovejingfei
 miss you feifi miss you, feifeieixiangnidewenrouwoyangnigeinizuihao
 <!---the best wishes to youtrymybest,giveyouthebest
 0xsalahmomo/0xsalahmomo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
